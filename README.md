@@ -4,3 +4,4 @@
 - 💞️ I’m looking to collaborate on projects that will allow me to create insights through analytics and to be able to perform data driven solutions.
 - 📫 How to reach me: bidkar.hi.le97@gmail.com
 
+## Now I have a personal website ----> bidkarhinojosa.me
